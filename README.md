@@ -1,3 +1,4 @@
+<img src="DSC_0355.JPG">
 - 👋 Hola!! Soy Judith PG @JUDITHP72
 - 👀 Actualmente estudio el posgrado en el Doctorado de Tecnología Educativa
 - 🌱 Me encanta seguir aprendiendo sobretodo en tecnología aplicadaa la educación
